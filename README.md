@@ -8,4 +8,4 @@ P.S.
 
 
 P.P.P.S.  
-        What exactly does the p & the s in P.S. even stand for? I suppose I could google it. That would just be me procrastinating even more. Gotdamn, I am a procrastinating whore!!!
+        What exactly does the p & the s in P.S. even stand for? I suppose I could google it. That would just be me procrastinating even more. Got****, I am a procrastinating w****!!!
