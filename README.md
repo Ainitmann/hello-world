@@ -5,3 +5,7 @@ P.S.
   ANY advice will be G-R-A-C-I-O-U-S-L-Y graciously accepted,reflected upon, taken highly into concideration, and implemented! Thank You in advanced! For I will be conciderably greatfull!!!
   P.P.S.
         It seams as tho I have just been rambling since the sentence "this is my very first try" so as to not continue down this path of self hatred that i have so stubbornly set myself upon!
+
+
+P.P.P.S.  
+        What exactly does the p & the s in P.S. even stand for? I suppose I could google it. That would just be me procrastinating even more. Gotdamn, I am a procrastinating whore!!!
